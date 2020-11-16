@@ -1,1 +1,0 @@
-# mymyka.github.io
